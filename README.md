@@ -1,1 +1,1 @@
-upload N.ft api for mintlol
+upload N.f.t api for mintlol
